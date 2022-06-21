@@ -1,5 +1,6 @@
-# [CE Construction](https://ce-construction.com)
 ![celogoo](https://user-images.githubusercontent.com/79390635/174721833-b240efc9-a5e3-4a0a-bcfb-2b28b7a76695.png)
+
+# [CE Construction](https://ce-construction.com)
 
 Driven by our dream to be active participants in the socio - techno development of the country and guided by our core values of integrity, honesty and hard work, CE, 29 years since its establishment has grown into a multidimensional/multinational organization serving sectors in: Construction, Consultancy, Construction Management, Manufacturing, Education, Finance, Health, Hospitality and Hydropower. As we strive to be the most trusted names in each area of our operations, construction remains our forte. Founded in 1992, the foremost establishment of CE, CE Construction is an organized industry that offers services in general contracting, construction management and design consultancy for projects of all kinds. 
 
